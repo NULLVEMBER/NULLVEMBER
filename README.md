@@ -4,7 +4,7 @@
 
 
 
-<img src="https://files.catbox.moe/5lldmu.gif" width="500" />
+<img src="https://github.com/NULLVEMBER/NULLVEMBER/blob/main/ezgif.com-optimize.gif" width="500" />
 
 
 ⠀⠀⠀⠀⠀⠀⠀[<img src="https://files.catbox.moe/qzjw7n.png" width="80" />](https://dorodorodean.straw.page)⠀⠀[<img src="https://files.catbox.moe/f84svg.png" width="80" />](https://dorodororo.atabook.org)
